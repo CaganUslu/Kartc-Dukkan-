@@ -1,0 +1,2 @@
+# Kartc-Dukkan-
+Ödev
